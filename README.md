@@ -17,4 +17,4 @@
 ## Links
 - [GitHub](https://github.com/Alekyab98)
 
-![Mypic](https://scontent-ort2-2.cdninstagram.com/v/t51.2885-19/s320x320/272008543_668717397809068_8662682657056601476_n.jpg?_nc_ht=scontent-ort2-2.cdninstagram.com&_nc_cat=104&_nc_ohc=5UC00xovIecAX8nRoqo&edm=ABfd0MgBAAAA&ccb=7-4&oh=00_AT_43ZNZ3WWsXpbYk2Mtc5YuMDIKTDVvioBDKuePCX2F2w&oe=61F0552D&_nc_sid=7bff83)
+![Mypic](https://scontent-ort2-1.cdninstagram.com/v/t51.2885-19/s320x320/272171186_896788117663973_6295650420369940813_n.jpg?_nc_ht=scontent-ort2-1.cdninstagram.com&_nc_cat=105&_nc_ohc=DiVc_86uAp8AX_Vzb5X&edm=ABfd0MgBAAAA&ccb=7-4&oh=00_AT-O6QJOC4M0YB8aMM0galrv4hOLsSCxfQc4t4jG8dm72A&oe=61F1DD24&_nc_sid=7bff83)
